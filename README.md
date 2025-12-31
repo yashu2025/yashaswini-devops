@@ -44,8 +44,8 @@
 ---
 
 ## 📫 Connect With Me
-- 💼 LinkedIn: https://linkedin.com/in/your-profile
-- 📧 Email: yourmail@gmail.com
+- 💼 LinkedIn:Linkedin.com/in/yashaswiniraj 
+- 📧 Email: yasaswiniraj312gmail.com
 - 📍 Location: India
 
 ---
