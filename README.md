@@ -46,7 +46,7 @@
 ## 📫 Connect With Me
 - 💼 LinkedIn:Linkedin.com/in/yashaswiniraj 
 - 📧 Email: yasaswiniraj312gmail.com
-- 📍 Location: India
+- 📍 Location: India,Bengalru
 
 ---
 
